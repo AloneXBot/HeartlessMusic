@@ -8,7 +8,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ᴀʅσηҽ χ мυ
 
 <a href="https://www.youtube.com/watch?v=dQw4w9WgXcQ"><img src="https://te.legra.ph/file/265e29bc52c7a32b67081.jpg.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a>
 
-<p align="center"><a href="https://telegram.dog/AloneXBot"><img src="https://te.legra.ph/file/ee06625c3e3bb4596f0db.jpg" width="400"></a></p>
+<p align="center"><a href="https://telegram.dog/AloneXBot"><img src="https://te.legra.ph/file/265e29bc52c7a32b67081.jpg" width="400"></a></p>
 
 <a href="https://www.youtube.com/watch?v=dQw4w9WgXcQ"><img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"></a>
 <p align="center">
